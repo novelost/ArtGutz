@@ -27,3 +27,16 @@ and displayed most of his art in the secretive Side Show Metropolitan Museum, hi
 located in the cellar of the dive bar, Side Show, which he co-owned and operated with my grandmother, Anita K.
 Carlson (1945-2019), for more than three decades.
 
+## About the Artist
+
+From the creator's self-authored obituary: 
+
+"Gary L. Carlson was born June 28, 1947 to Pat and Fay Carlson in Minneapolis Minnesota. He attended 
+Roosevelt High School in Minneapolis and Portland State University in Portland, Oregon. An army veteran, 
+he attained the storied rank of E-4 during his military service. Know to many as 'Pa', which he didn't like, 
+he tended bar for 27 years at the Side Show, making many cherished friends over the years. He was the 
+creator and curator of the Side Show Metropolitan Museum and had great fun taking people on tours of the 
+studio art there. In his spare time he avoided playing euchre, golf and bowling. He died at the age of 66 
+on October 9, 2013 at home after a not particularly courageous battle with rheumatoid arthritis and lung cancer."
+
+
